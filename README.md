@@ -1,1 +1,1 @@
-# Bachelorgruppeside
+# Bachelorgruppe side
